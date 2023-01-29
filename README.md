@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- 🧑‍🎓 Hi, I'm Jiahua Chen, you can also call me Ella.
+- 🧑‍🎓 Hi, I'm Jiahua Chen, you can also call me Caroline.
 - 🌏 I am a student. And I will always be a student.
 
